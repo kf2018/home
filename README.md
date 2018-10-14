@@ -1,22 +1,21 @@
 # 小脸通红 最新地址
 请选择最新地址
 
-[https://xlth1.com](https://xlth1.com)
+[http://xlth1.com](http://xlth1.com)
 
-[https://xlth1.com](https://xlth1.com)
+[http://xlth1.com](http://xlth1.com)
 
-[https://xlth1.com](https://xlth1.com)
+[http://xlth1.com](http://xlth1.com)
 
 
 永久地址发布站
 
 地址1: [https://github.com/kf2018/home](https://github.com/kf2018/home)
 
-地址2: [https://xlth1.com](https://xlth1.com)
+地址2: [http://xlth1.com](http://xlth1.com)
 
 海外永久地址(需翻墙)
-
-[小脸通红.com](https://小脸通红.com)
+[小脸通红.com](http://小脸通红.com)
 
 
 二維碼
