@@ -14,6 +14,8 @@
 
 地址2: [http://xlth1.com](http://xlth1.com)
 
+地址3: [小脸通红.com](小脸通红.com)
+
 海外永久地址(需翻墙)
 
 [小脸通红.com](http://小脸通红.com)
@@ -21,7 +23,7 @@
 
 二維碼
 
-[<img src="https://i.imgur.com/mpk0cmh.jpg">](https://i.imgur.com/mpk0cmh.jpg)
+[<img src="https://i.postimg.cc/cHtZLs0h/6035837.jpg">](https://i.postimg.cc/cHtZLs0h/6035837.jpg)
 
 
 国产浏览器(如 UC、360、QQ、百度) 不定期可能会屏蔽网站，建议使用谷歌浏览器观看 
