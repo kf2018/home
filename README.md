@@ -1,11 +1,8 @@
 # 小脸通红 最新地址
 请选择最新地址
 
-[http://www.123dh.vip/](http://www.123dh.vip/)
+[http://xlth123.com/](http://xlth123.com/)
 
-[http://www.123dh.vip/](http://www.123dh.vip/)
-
-[http://www.123dh.vip/](http://www.123dh.vip/)
 
 
 永久地址（打不开请翻墙）
